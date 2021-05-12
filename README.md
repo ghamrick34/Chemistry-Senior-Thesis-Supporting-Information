@@ -1,1 +1,1 @@
-# Senior-Chemistry-Thesis-Supporting-Information
+# Chemistry-Senior-Thesis-Supporting-Information
